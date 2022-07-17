@@ -1,3 +1,2 @@
 # firstone-
-messsssssssi 30
-cr7
+messssss
